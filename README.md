@@ -1,6 +1,6 @@
 # NO626域名发布页
 
-https://www.no626.online
+https://www.ok626.network
 
 # 临时域名
 
